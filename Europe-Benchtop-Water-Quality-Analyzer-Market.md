@@ -1,4 +1,4 @@
-"# Europe Benchtop Water Quality Analyzer Market Size, Scope, Forecast to 2031
+# Europe Benchtop Water Quality Analyzer Market Size, Scope, Forecast to 2031
 
 <Strong> Benchtop Water Quality Analyzer Market Overview 2025 - 2031</strong>
 
